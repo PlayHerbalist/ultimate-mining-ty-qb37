@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://PlayHerbalist.github.io/ultimate-mining-ty-qb37/) |
  |---------------------|----------------------:|
 
 
